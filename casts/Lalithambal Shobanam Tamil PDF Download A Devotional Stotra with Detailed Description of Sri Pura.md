@@ -1,0 +1,25 @@
+
+ 
+# Lalithambal Shobanam: A Tamil Poem on the Glory of Goddess Lalitha
+ 
+Lalithambal Shobanam is a popular poem that is recited by many women in Tamil Nadu as a daily prayer. It is a summary of Lalithopakhyanam, a story from Brahmanda Purana that narrates the incarnation and deeds of Goddess Lalitha, the consort of Lord Shiva. The poem was composed in a colloquial language used in households and each stanza ends with the word "Shobanam" repeated twice, which means "let it be auspicious".
+ 
+**Download ––– [https://jinyurl.com/2uxo4M](https://jinyurl.com/2uxo4M)**
+
+
+ 
+The poem tells how the devas were troubled by two asuras named Daruka and Soora, who had a boon that they could only be killed by a son of Shiva. At that time, Shiva's wife Sati had died and he was doing penance. Sati was reborn as the daughter of Himalaya Mountain. The devas requested Manmatha, the god of love, to shoot an arrow at Shiva to make him fall in love with Sati again. But Shiva woke up, opened his third eye and burnt Manmatha to ashes. Later, Viswakarma, the divine architect, made a doll out of the ashes of Manmatha. Shiva gave him life and many boons. Brahma named him Banda. Banda became an evil king and waged war against the devas.
+ 
+The devas realized that only the Goddess who would marry Shiva could kill Banda. They prayed to the supreme mother and she appeared as Lalitha Devi, the playful and easily pleased Goddess. She married Kameswara, the handsome form of Shiva, and led a huge army to fight against Banda. She killed him and his followers with her weapons and powers. She also revived Manmatha from his ashes and reunited him with his wife Rati. She then ruled over Sri Pura, her divine city, with Kameswara.
+ 
+lalithambal shobanam tamil pdf free download,  lalithambal shobanam tamil pdf online,  lalithambal shobanam tamil pdf book,  lalithambal shobanam tamil pdf archive,  lalithambal shobanam tamil pdf summary,  lalithambal shobanam tamil pdf translation,  lalithambal shobanam tamil pdf lyrics,  lalithambal shobanam tamil pdf audio,  lalithambal shobanam tamil pdf meaning,  lalithambal shobanam tamil pdf story,  lalithambal shobanam in tamil pdf format,  lalithambal shobanam in tamil pdf vedanta shastras library,  lalithambal shobanam in tamil pdf brahmanda purana,  lalithambal shobanam in tamil pdf hayagreeva,  lalithambal shobanam in tamil pdf agasthya,  lalithambal shobanam in tamil pdf bandasura,  lalithambal shobanam in tamil pdf sri pura,  lalithambal shobanam in tamil pdf manmatha,  lalithambal shobanam in tamil pdf kameswara,  lalithambal shobanam in tamil pdf rathi devi,  download lalithambal shobanam in tamil pdf free,  download lalithambal shobanam in tamil pdf online,  download lalithambal shobanam in tamil pdf book,  download lalithambal shobanam in tamil pdf archive,  download lalithambal shobanam in tamil pdf summary,  download lalithambal shobanam in tamil pdf translation,  download lalithambal shobanam in tamil pdf lyrics,  download lalithambal shobanam in tamil pdf audio,  download lalithambal shobanam in tamil pdf meaning,  download lalithambal shobanam in tamil pdf story,  how to download lalithambal shobanam in tamil pdf free,  how to download lalithambal shobanam in tamil pdf online,  how to download lalithambal shobanam in tamil pdf book,  how to download lalithambal shobanam in tamil pdf archive,  how to download lalithambal shobanam in tamil pdf summary,  how to download lalithambal shobanam in tamil pdf translation,  how to download lalithambabshonm in tamipdf lyrics
+ 
+Lalithambal Shobanam describes the beauty, grace and glory of Lalitha Devi in detail. It also praises her various names and forms. It is believed that reciting this poem brings blessings, prosperity and protection to the devotees.
+
+One of the most important and popular texts related to Lalitha Devi is Lalitha Sahasranama, which means "the thousand names of Lalitha". It is a part of the Brahmanda Purana and it was given by Lord Hayagriva, an incarnation of Lord Vishnu, to Sage Agastya. The names of Lalitha Devi describe her attributes, qualities, powers and manifestations. They also reveal her cosmic role as the supreme mother of the universe and the consort of Shiva.
+ 
+Lalitha Sahasranama is considered to be a very powerful and sacred mantra that bestows many benefits to the devotees who recite it with devotion and understanding. It is said that Lalitha Devi herself resides in this mantra and grants all the wishes of her children. It is also a great source of spiritual knowledge and wisdom that can help one attain liberation from the cycle of birth and death.
+ 
+Lalitha Sahasranama has been chanted and sung by many saints, sages, scholars and artists throughout history. One of the most famous and revered singers of Lalitha Sahasranama is MS Subbalaxmi, who was a legendary Carnatic vocalist and a devotee of Lalitha Devi. Her rendition of Lalitha Sahasranama is considered to be very melodious, soothing and divine. Many people listen to her version daily as a part of their worship.
+ 8cf37b1e13
+ 
